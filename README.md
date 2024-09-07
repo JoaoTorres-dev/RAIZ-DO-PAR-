@@ -1,4 +1,4 @@
-## Raiz do Pará: Sua porta de entrada para o coração paraense! 
+## Raiz do Pará: Sua porta de entrada para o coração paraense! -Imersão Dev com Google Gemini
 
 **O que é?**
 
